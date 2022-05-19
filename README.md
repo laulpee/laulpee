@@ -12,7 +12,7 @@
   - Playing & watching soccer
   - Photography (@laulpeephotography on IG!)
 
-- Career Background:
+- 💼 Career Background:
   - I graduated with my Bachelor's degree (2017) and Master's degree (2018) in Structural Engineering at UC San Diego
   - Ever since graduating, I worked for 3+ years as an aerospace-structural engineer for couple engineering companies in San Diego. At my most recent job, I worked as an aerospace engineer at Naval Air Systems Command (NAVAIR), working on structural analysis for composite repairs on navy jets.
   - Working during the pandemic made me realize that maybe structural engineering might not be the career that I would enjoy the most, and so I quit my job to take a break while figuring out what my next career step can look like.
